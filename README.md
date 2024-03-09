@@ -1,0 +1,1 @@
+## Efeito Explosão
